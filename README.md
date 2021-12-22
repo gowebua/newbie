@@ -1,5 +1,10 @@
 # Кресла для сидения перед компом
 
+### [smartik] 72 кг 180 см
+Herman miller aeron однозначно.
+Вот оно новое по нормальной цене
+https://www.olx.ua/d/uk/obyavlenie/herman-miller-aeron-remastered-v-nalichii-novoe-razmer-b-IDKAKIM.html
+
 ### [ctrlok] 95±2 кг, 184 рост
 
 * Ergohuman - дешевле, сидеть неудобно, но спина болеть перестала (продал потому что спина болеть перестала, а просто сидеть неудобно)
